@@ -31,7 +31,7 @@
 - I can be a bit impatient, particularly if I don't understand your vision.  Feel free to call me out on this.
 - I am not very good at noticing subtext/inferring your deeper meaning.  Please, give it to me straight!
 - I tend to either answer the question as it was asked, but not necessarily as it was meant:  "black or white?" "Yes, it is some combination of the two."
-- I am not always very self-aware.  If you observe me acting outside of these parameters, I would love to talk about it!
+- I am not always very self-aware.  If you observe me acting outside of these parameters, I would love to [talk about it!](mailto:gently@gmail.com).  Or you are welcome to [submit a pull request](https://github.com/fool/owners_manual/pulls).
 
 
 This was inspired by http://www.nytimes.com/2013/03/31/business/questbacks-lead-strategist-on-his-user-manual.html
