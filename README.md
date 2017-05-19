@@ -1,4 +1,3 @@
-# owners_manual
 
 ## What do you want us to know about your communication style?
 
