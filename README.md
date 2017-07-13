@@ -13,7 +13,8 @@
 - I am generally unconvinced of my correctness, and self-deprecating.
 - I am a guesser, not an asker (see https://www.theatlantic.com/national/archive/2010/05/askers-vs-guessers/340891/)
 - I am generally a happy person and I'm easily excitable.  
-- I act like an extrovert, but I value my alone/recharge time like an introvert.
+- I act like an extrovert - extremely outgoing while in public - but I value my alone/recharge time like an introvert.
+- I am difficult to upset and quick to forget past frustrations.
 
 ## How can you best work with me?
 
