@@ -17,8 +17,8 @@
 
 ## How can you best work with me?
 
-- The best way to get me to do something is to send a calendar invite.  If it's not on my calendar, I have already forgotten I planned to do it.
-- I like my feedback immediate and unfiltered. I’m far more interested in doing great things together than worrying about my feelings.
+- The best way to get me to do something is to send a calendar invite.  If I'm not already doing it or it's not on my calendar, I have already forgotten I planned to do it.
+- I like my feedback immediate and unfiltered. I’m far more interested in doing great things together than I am worrying if my feelings get hurt.
 - Efficiency is usually one of my primary goals.  If it is not your goal on a shared project, that's no problem - but I must ask that you please advise me of that early and often.
 - I'm a sucker for bullet lists.
 
