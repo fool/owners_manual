@@ -10,7 +10,7 @@
 ## What are some useful things to know in advance about your style?
 
 - I love to help!
-- I am generally unconvinced of my correctness - advise me! and I'm self-deprecating.
+- I am generally unconvinced of my correctness - advise me if you know better!  I'm self-deprecating.
 - I am a guesser, not an asker (see https://www.theatlantic.com/national/archive/2010/05/askers-vs-guessers/340891/)
 - I act like an extrovert - fairly outgoing while in public - but I value my alone/recharge time like an introvert.
 - I am generally a happy person.  I am difficult to upset (but I am easily excitable)- and quick to forget past frustrations.
