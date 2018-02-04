@@ -5,7 +5,7 @@
 - I am straightforward and may have some unsolicited advice, but I try to make sure it is constructive. It comes from a place of love.
 - I am open to debate on anything. I enjoy thoughtful interaction. Let's learn from eachother!
 - I tend to wear my heart on my sleeve.  I'm no good at lying or hiding my feelings.
-- My preference in most cases would be for written communication as it gives me time to process and present a coherent, reasoned opinion and address all of your points.
+- My preference in most cases would be for written communication as it gives me time to process and present a coherent, reasoned opinion and address all of your points.  But I love brainstorming over beers too!
 
 ## What are some useful things to know in advance about your style?
 
