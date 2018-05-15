@@ -1,6 +1,6 @@
 ## What are your primary goals as a human being?
 
-Everything I do is with the three goals of Efficiency, Kindness, and Understanding.  I try very not to waste my time or yours;  everything I do and say comes from a place of love (see also "constructive criticism" and the golden rule), and am passionate about understanding a situation and goal before beginning work on it.
+Everything I do is with the three goals of Efficiency, Kindness, and Understanding.  I try very hard not to waste my time or yours;  everything I do and say comes from a place of love (see also "constructive criticism" and the golden rule); and finally am passionate about understanding a situation and associated goal before beginning work on anything.
 
 ## What do you want us to know about your communication style?
 
