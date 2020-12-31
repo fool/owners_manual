@@ -1,10 +1,10 @@
 ## What are your primary goals as a human being?
 
-Everything I do is with the three goals of Efficiency, Kindness, and Understanding.  I try very hard not to waste my time or yours;  everything I do and say comes from a place of love (see also "constructive criticism" and the golden rule); and finally am passionate about understanding a situation and associated goal before beginning work on anything.
+Everything I do is with the three high-level goals of Efficiency, Kindness, and Understanding.  I try very hard not to waste my time or yours;  everything I do and say comes from a place of love (see also "constructive criticism" and the golden rule); and finally am extremely interested in understanding a situation and associated goal before beginning work on anything.
 
 ## What do you want us to know about your communication style?
 
-- I am an extremely quick thinker and talker.  You don't have to be for us to work together!
+- I am an extremely quick thinker and talker.  However, you don't have to be for us to work together!
 - I am straightforward and may have some unsolicited advice, but I try to make sure it is constructive and will try to turn it down a notch if you ask me to.
 - I am open to debate on anything. I enjoy thoughtful interaction. Let's learn from eachother!
 - I tend to wear my heart on my sleeve.  I'm no good at lying or hiding my feelings.
@@ -13,7 +13,7 @@ Everything I do is with the three goals of Efficiency, Kindness, and Understandi
 ## What are some useful things to know in advance about your style?
 
 - I love to help!
-- I am generally confident in my opinion, yet also not sure if I'm correct. Please advise me if you know better!  I'm self-deprecating.
+- I am generally confident in my opinion, yet also not sure if I'm correct. Please advise me if you know better!  I'm self-deprecating and accepting that there is more in the world than this fool knows :)
 - I am a guesser, not an asker (see https://www.theatlantic.com/national/archive/2010/05/askers-vs-guessers/340891/)
 - I act like an extrovert - fairly outgoing while in public - but I value my alone/recharge time like an introvert.
 - I am generally a happy person.  I am difficult to upset (but I am easily excitable) - and quick to forget past frustrations.
